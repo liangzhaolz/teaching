@@ -11,7 +11,6 @@ As a Graduate Teaching Assistant in the Department of Language and Linguistic Sc
 During my time in Offcn Education & Technology, I taught courses designed to help undergraduate students to prepare for the National Entrance Exam for Graduate School
 
 #### Foundamentals in Linguistics (2018)
-- Textbook:
 
 #### Survive interviews delivered in English (2019)
 
