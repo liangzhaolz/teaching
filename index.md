@@ -3,10 +3,10 @@
 As a Graduate Teaching Assistant in the Department of Language and Linguistic Science at University of York, I have been teaching seminars and lab practical sessions for undergraduate modules including:
 
 #### Introduction to Phonetics and Phonology (2020/10 -)
-  - Module convenor: George Bailey
+  - Module convener: Dr. George Bailey
 
 #### Intermediate Phonetics and Phonology (2022/01 -)
-  - Module convenor: Eleanor Chodroff
+  - Module convener: Dr. Eleanor Chodroff
 
 
 During my time in Offcn Education & Technology, I taught courses designed to help undergraduate students to prepare for the National Entrance Exam for Graduate School:
