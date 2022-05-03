@@ -1,50 +1,31 @@
 ## Teaching
 
-### Graduate Teaching Assistantship 
-01/2022 – present
+As a Graduate Teaching Assistant in the Department of Language and Linguistic Science at University of York, I have been teaching seminars and lab practical sessions for undergraduate modules including:
 
-*Intermediate Phonetics and Phonology* (Module convener: Dr. Eleanor Chodroff)
+#### Introduction to Phonetics and Phonology (2020/10 -)
+  - Module convener: Dr. George Bailey
 
-- GTA at the University of York in the Department of Language and Linguistic Science
-- Involved in leading lab practical sessions and marking
+#### Intermediate Phonetics and Phonology (2022/01 -)
+  - Module convener: Dr. Eleanor Chodroff
 
-10/2021 – 06/2022
 
-*Introduction to Phonetics and Phonology* (Module convener: Dr. George Bailey)
+During my time in Offcn Education & Technology, I taught courses designed to help undergraduate students to prepare for the National Entrance Exam for Graduate School:
 
-- GTA at the University of York in the Department of Language and Linguistic Science
-- Involved in leading seminars and marking
+#### Foundamentals in Linguistics (2018)
+#### Survive interviews for Graduate School (2019)
 
-10/2020 – 06/2021
 
-*Introduction to Phonetics and Phonology* (Module convener: Dr. George Bailey)
+I also worked as a part-time IELTS tutor at Global IELTS (China):
 
-- GTA at the University of York in the Department of Language and Linguistic Science
-- Involved in leading seminars and marking
+#### Reading and Writing in Academic IELTS (2016 - 2017)
 
-### Employment
-2018 – 2019
 
-*Fundamentals in Linguistics* (as instructor) 
+Further back to my undergraduate period, I served as 
 
-*Survive interview in English* (as instructor)
-
- - Full-time employment as curriculum developer at Offcn Education & Technology Co.,Ltd (Beijing Headquarter) 
-
-2016 – 2017
-
-*Reading and Writing in Academic IELTS* (as instructor and group leader)
-
-- Employment as IELTS tutor at the Global IELTS
-
-### Undergraduate Teaching Assistantship
-2016 summer
-Lab assistant at the Hebei University of Architecture, Department of English Language Involved in lab workshop organizing and report drafting
-
-2014 – 2016
+#### Class tutor (2014 - 2016)
 Undergraduate tutor for English major in Jiangnan University
 
-2014 summer
+#### TA in summer school (2014 - 2015)
 Teaching assistant in the Conversational English Summer School held by Honors School, Jiangnan University
 
 
