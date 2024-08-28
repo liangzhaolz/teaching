@@ -1,6 +1,6 @@
 ## Teaching
 ### BFSU
-- Academic English Writing (2024/09 - ): for English majors of the BSFU-BIT Joint Degree; sole instructor & module coordinator
+- Academic English Writing (2024/09 - ): for English majors of the BSFU-BIT joint degree; sole instructor & module coordinator
 
 - Academic English Writing' (2024/09 - ): for non-language majors; co-instructor
 
