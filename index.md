@@ -1,15 +1,15 @@
 ## Teaching
 ### BFSU
-- Academic English Writing (2024/09 - ) at Beijing Foreign Studies Univeristy (sole instructor & module coordinator)
+- Academic English Writing (2024/09 - ): for English majors of the BSFU-BIT Joint Degree; sole instructor & module coordinator
 
-- Academic English Writing' (2024/09 - ) at Beijing Foreign Studies Univeristy (instructor)
+- Academic English Writing' (2024/09 - ): for non-language majors; co-instructor
 
 ### University of York
 As a Graduate Teaching Assistant in the Department of Language and Linguistic Science at University of York, I taught seminars and lab practical sessions for two undergraduate modules:
 
 - Intermediate Phonetics and Phonology (2022/01 - 2023/07)
   
-- Introduction to Phonetics and Phonology(2020/10 - 2022/07)
+- Introduction to Phonetics and Phonology (2020/10 - 2022/07)
 
 ### Others
 - Survive interviews for Graduate School (2019) at Offcn Education & Technology, China
